@@ -7,6 +7,7 @@
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=OnelHerath" alt="OnelHerath" /></a> </p>
 
 - 📫 How to reach me **onelherath0918@gmail.com**
+- - 📫 How to reach me instagram **onel_herath_**
 
 - ⚡ Fun fact **I think I am funny**
 
