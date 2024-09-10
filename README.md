@@ -8,6 +8,7 @@
 
 - 📫 How to reach me **onelherath0918@gmail.com**
 - 📫 How to reach me instagram **onel_herath_**
+- 📫 How to reach me linkedin **Onel Herath**
 
 - ⚡ Fun fact **I think I am funny**
 
